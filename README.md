@@ -1,2 +1,2 @@
 # velv3tmorning.github.io
-My site :3
+Can't bother using fakecrime or guns.lol or anything.
